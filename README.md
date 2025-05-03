@@ -48,7 +48,7 @@
 ### 📫 Let’s Connect!
 
 - LinkedIn: (http://www.linkedin.com/in/hammuel-yepdie-24776935a)
-- Twitter: (https://x.com/HammuelY)
+- Twitter:(https://x.com/hammuel2?s=11)
 
 ---
 
